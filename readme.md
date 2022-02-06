@@ -1,1 +1,1 @@
-dupa jasia
+małgosia
